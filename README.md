@@ -1,2 +1,2 @@
 # bubble-Lvlv
-我的學習list。。。
+my learning resources。。。
